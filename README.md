@@ -1,1 +1,0 @@
-# ar-shade-radtb5f0c
